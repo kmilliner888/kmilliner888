@@ -7,4 +7,3 @@
 - 📫 How to reach me: info@kaylenmilliner.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: If I could change things, I definitely would have become an astronaut 👩🏾‍🚀
-- 📓 Here's my portfolio: kaylenmilliner.com
