@@ -6,5 +6,5 @@
 - 💬 But also ask me about STEAM education, Media Literacy, and EdTech apps 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: If I could change things, I definitely would have been an astronaut 👩🏾‍🚀
-- 📓 My portfolio: kaylenmilliner.com
+- 📓 My portfolio: www.kaylenmilliner.com
 - 📫 How to reach me: info@kaylenmilliner.com
