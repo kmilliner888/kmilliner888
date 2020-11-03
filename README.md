@@ -4,6 +4,7 @@
 - 🌱 I’m learning more about Tech Ethics, Automated Testing, and Open Source Contribution
 - 💬 Ask me about my new puppy 🐶 and how my plants are doing😜🌺
 - 💬 But also ask me about STEAM education, Media Literacy, and EdTech apps 
-- 📫 How to reach me: kaylenmilliner8@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: If I could change things, I definitely would have been an astronaut 👩🏾‍🚀
+- 📓 My portfolio: kaylenmilliner.com
+- 📫 How to reach me: info@kaylenmilliner.com
