@@ -5,6 +5,6 @@
 - 💬 Ask me about my new puppy 🐶 and how my plants are doing😜🌺
 - 💬 But also ask me about STEAM education, Media Literacy, and EdTech apps 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: If I could change things, I definitely would have been an astronaut 👩🏾‍🚀 or a musician 👩🏾‍🎤 🎸
+- ⚡ Fun fact: If I could change things, I definitely would have been a musician 👩🏾‍🎤 🎸
 - 📓 My portfolio: www.kaylenmilliner.com
 - 📫 How to reach me: info@kaylenmilliner.com
